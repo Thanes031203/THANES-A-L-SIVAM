@@ -1,4 +1,4 @@
-# THANES-A-L-SIVAM
+# THANES A/L SIVAM
 A proud UTM student 
 Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is THANES A/l SIVAM
 ========================================================================================================================================
